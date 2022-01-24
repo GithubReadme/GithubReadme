@@ -1,5 +1,6 @@
 ### Hi there 👋
-
+Hello this is Priyanka Adhikari, Impeccable academics with excellent client oversight and Relationship-building expertise. Maximized
+repeat business opportunities and utilized proven prospecting techniques to expand client base.
 <!--
 **GithubReadme/GithubReadme** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
